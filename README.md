@@ -1,6 +1,6 @@
 # Wallpapers
 
-A showcase of 45 wallpapers in this repository.
+only high quality wallpapers over here stranger. /11
 
 ## Showcase
 
